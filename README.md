@@ -223,4 +223,4 @@ Battlegrounds Mobile India is offered as a full free version with all features a
 Download Battlegrounds Mobile India now and immerse yourself in the ultimate Battle Royale experience tailored for Windows. Join the fight today!
 
 ---
-**Last updated:** 2026-09-23 23:33:23 UTC
+**Last updated:** 2026-09-24 04:24:39 UTC
